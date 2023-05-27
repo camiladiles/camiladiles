@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Hi, I’m Cami, 29 years old, living in Perú for now, but open for the world. ✨✨
+Hi, I’m Cami, living in Perú for now, but open for the world. ✨✨
 
 I have 13 years of work experience mostly of them in Education as a math teacher, leadership with international teams, sales, project management, product management and tech. Experience with international organizations, start up, companies and ONGs. 
 
