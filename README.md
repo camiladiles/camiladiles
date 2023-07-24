@@ -32,4 +32,4 @@ MiniCamp of XP Educação (Brazil)
 - Observability
 - Services Cloud AWS
 
-- FastAPI, MongoDB
+- FastAPI, MongoDB, JAVA, SQL, Git&GitHub
