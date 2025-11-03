@@ -2,7 +2,7 @@
 
 Hi, I’m Cami, living in Perú for now, but open for the world. ✨✨
 
-I have 13 years of work experience mostly of them in Education as a math teacher, leadership with international teams, sales, project management, product management and tech. Experience with international organizations, start up, companies and ONGs. 
+I have 15 years of work experience mostly of them in Education as a math teacher, leadership with international teams, sales, project management, product management and tech. Experience with international organizations, start up, companies and ONGs. 
 
 For now I’m focus on the tech area, with a course in DevOps and different programming language (like JS and Python) 😄😄
 
